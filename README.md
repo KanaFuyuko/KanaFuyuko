@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KanaFuyuko
+- 👀 I’m interested in 3D Animation and Modeling
+- 🌱 I’m currently learning about different addons for modeling
+- 💞️ I’m looking to collaborate on anything with 3D
+- 📫 You can reach me via email
